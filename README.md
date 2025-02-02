@@ -1,1 +1,1 @@
-Local change made by Morgan Allen and Remote change made by Morgan Allen.
+Local change made by Morgan Allen.
